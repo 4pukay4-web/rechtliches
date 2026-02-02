@@ -1,0 +1,2 @@
+# rechtliches
+Datenschutzerklärung und Nutzungsbedingungen
